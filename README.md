@@ -2,9 +2,9 @@
 
 ##Professional Initiatives
 1. Author - 
-   The Story of My JEEvan - https://www.amazon.in/Story-My-JEEvan-Pothole-IIT-Bombay-ebook/dp/B09MPP8MZP
-   Football 101: A Positional Analysis - https://www.amazon.in/dp/B0BGMMQVNP
-   Football Articles: https://www.instagram.com/dummyrun_/
+   i) The Story of My JEEvan - https://www.amazon.in/Story-My-JEEvan-Pothole-IIT-Bombay-ebook/dp/B09MPP8MZP
+   ii) Football 101: A Positional Analysis - https://www.amazon.in/dp/B0BGMMQVNP
+   iii) Football Articles: https://www.instagram.com/dummyrun_/
    
 2. Vibe Basket - https://drive.google.com/drive/folders/12dTmKbwZGBg2Z2yBofY5MRIgKSRTaFCg?usp=sharing
 
